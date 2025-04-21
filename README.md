@@ -42,7 +42,7 @@ All content is original IP. Available for:
 - Integration into SaaS platforms or clinical tools
 - Collaboration for publication or expansion into commercial frameworks
 
-Contact: ecssignslling@gmail.com
+Contact: TeamMohamed@proton.me
 
 ---
 
